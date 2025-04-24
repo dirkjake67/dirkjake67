@@ -1,5 +1,6 @@
 
-![mizi-my-clematis](https://github.com/user-attachments/assets/bced671a-47da-4887-9a16-135b41ef2f20)
- 
-![kawaii](https://github.com/user-attachments/assets/e88f8ec4-96e4-4e34-9cfd-288252a5c2ac)
+ ![pink-pixel-hearts-cute-lolita-kawaii-soft](https://github.com/user-attachments/assets/03fdc042-ac3b-43a0-8fb3-4f3d25bfa136) ![pink-pixel-hearts-cute-lolita-kawaii-soft](https://github.com/user-attachments/assets/03fdc042-ac3b-43a0-8fb3-4f3d25bfa136)
+
+
+  ![madoka](https://github.com/user-attachments/assets/09a9ffaa-3150-4626-a670-a0ce0db9a83b)
 
